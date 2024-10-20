@@ -1,0 +1,2 @@
+Lab 3 Assignment is complete
+https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExMmF5YXVuc3o2aXQ5M21ocWk2YXFtMTJ1dGNncTR4c3Bncnk3YzJ2NiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/rPAjvmtIXX81UChM7b/giphy.gif
